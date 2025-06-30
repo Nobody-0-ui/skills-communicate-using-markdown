@@ -1,3 +1,3 @@
-# Daily learning 
+# Daily learning
 ## Morning planning 
 ## Reviews 
